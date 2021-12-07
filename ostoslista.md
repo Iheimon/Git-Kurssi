@@ -1,3 +1,4 @@
 - Vaasan ohut herkku
 - Oivariini kulta
 - Kananmunia 6kpl
+- Tonnikalaa
